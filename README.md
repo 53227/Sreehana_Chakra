@@ -1,7 +1,7 @@
 - 👋 Hi, I’m SREEHANA CHAKRA
 - 👀 I’m interested in TECH INNOVATIONS
 - 🌱 I’m currently learning COMPUTER SCIENCE AND ENGINEERING
-- 💞️ I’m looking to collaborate on ANY INTERNSHIPS RELATED TO MY FIELD
+- 💞️ I’m looking to collaborate on ANY INTERNSHIPS RELATED TO MY FIELD.
 - 📫 How to reach me : sreehanachakra@gmail.com
 - 😄 Pronouns: She/Her.
 
